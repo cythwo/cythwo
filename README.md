@@ -1,5 +1,4 @@
 <div align="center">
- <img src="https://file.garden/awHzX9qpA0zRQMqF/Untitled451_20261122121115.png" width="1000" alt="Image" />
 
   <br />
 
