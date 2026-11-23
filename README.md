@@ -6,7 +6,7 @@
 
   <p align="center">
     ${{\color{#629E9E} ૮꒰}}$
-    <a href="https://cythsbyi.straw.page/">ʙʏɪ&ᴅɴɪ</a>
+    <a href="https://cythwo.straw.page/">ꜱᴛʀᴀᴡᴘᴀɢᴇ</a>
     ${{\color{#629E9E} .☽༊˚ }}$
     <a href="https://cythwo.atabook.org/">ᴀᴛᴀ</a>
     ${{\color{#629E9E} .☽༊˚ }}$
